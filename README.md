@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/ronlevy120/)
 - ⚡ Fun fact: I drink 5 cups of coffee each day!
 
-Have an great day!
+**Have a great day!**
